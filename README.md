@@ -1,1 +1,1 @@
-# Binara Medawatta
+# BinaraMedawatta.github.io
